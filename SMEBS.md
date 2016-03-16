@@ -1,0 +1,10 @@
+<a href='http://www.sme.in/w_pkg_menu.aspx'>B@B Directory-product or service categories</a>
+
+# SMEBS-Top b2b portal #
+Whether you are buyer or a seller, your account   can offer you more than your normal expectations. If you are looking to buy the best items on best available prices or just want to multiply your total sales, your free membership account many offer you both without paying a single penny to   A free member can post 7 products and 35 sell offers providing you a gateway to attract millions of buyers and suppliers from all over the world. Post your company profile, products and sell offers now and see the differences it makes to your business.
+
+And what more, you may also send up to 300 messages to your potential buyers and suppliers as a free member at  In form of "Sell Offer" and "Buy Offer" options, your Free Membership Account offers you a great opportunity to magnify your virtual presence as well as introduce your company, products and services to millions of traders of the world.
+
+Being a free member at   you have limited numbers of sell offers and buy offers but smart and intelligent usage of your account at   may offer you unlimited opportunities for generating hundreds of genuine business leads here. Benefits are endless here depending upon how frequently you post, repost and update your sell offers and buy offers. Even our free members enjoy a remarkable ROI without investing a single penny, so you can easily imagine the unlimited benefits offered by our premium membership packages called TradeLite and TradeMax.
+
+Let's login to your free membership account and experience the virtual magic offered .It is an exclusive service meant for exporters, buyers, global traders, commission agents, indentors, manufacturers and suppliers of entire world.[[B2B Marketplace](http://www.sme.in)]
